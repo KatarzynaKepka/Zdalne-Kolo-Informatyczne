@@ -1,1 +1,0 @@
-# Zdalne-Kolo-Informatyczne
